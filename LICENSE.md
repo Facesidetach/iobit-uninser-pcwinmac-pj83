@@ -1,4 +1,4 @@
-# 
+# Exclusivo IObit Uninstaller modelos para Mac OS | Atualizado IObit Uninstaller modelos para PC Windows. Com priorizacao de processos e gravacao de macros — otimizado para máximo desempenho em cada plataforma.
 
 
 
